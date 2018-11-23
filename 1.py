@@ -4,4 +4,4 @@ you are my friend
 
 
 
-he is my friend too 
+He is my friend too 
