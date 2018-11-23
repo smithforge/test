@@ -1,7 +1,5 @@
 you have a girl friend
 you have a boy friend
 you are my friend
-
-
-
-He is my friend too 
+she is my friend
+He is my friend too
